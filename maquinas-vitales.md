@@ -1,6 +1,6 @@
 # Máquinas vitales
 
-Que nos permitan multiplicar nuestra fuerza vital para lograr nuestros deseos.
+Máquinas que nos permitan multiplicar nuestra fuerza vital para lograr nuestros deseos.
 
 Que del mismo modo en que las poleas y las palancas cuidan nuestros cuerpos, nos permitan apoyarnos en ellas para observar el mundo, cuidarnos y expandirnos en toda nuestra humanidad.
 
