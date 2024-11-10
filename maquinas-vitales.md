@@ -10,7 +10,7 @@ Máquinas mínimas, hechas de un gesto con la mano, de una frase o de una imagen
 
 Máquinas formidables hechas de máquinas, que nos ayuden a volar más rápido y más alto que las tragedias y las circunstancias, para volver a llenar de humanidad el mundo.
 
-Algunas se largan al viento para crear una chispa inesperada en donde sea que aterricen; otras son compartidas y demostradas concienzudamente en grupos, para alimentar y moldear la confianza que permitirá construir y compartir máquinas más grandes.
+Algunas se largan al viento para producir una chispa inesperada en donde sea que aterricen; otras son compartidas y demostradas concienzudamente en grupos, para alimentar y moldear la confianza que permitirá construir y compartir máquinas más grandes.
 
 Aprender a construirlas en cantidad y variedad conlleva un proceso de aprendizaje, que consiste en mirarse uno mismo, y después mirar al de al lado, hasta volver a intuir con precisión las leyes que gobiernan el movimiento de todo lo que nos hace bien y nos es necesario. Sin embargo, siempre tenemos algunas recetas a la mano desde el principio, para comenzar: nada más hay que saber mirar.
 
