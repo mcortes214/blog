@@ -1,4 +1,4 @@
-### Máquinas vitales
+# Máquinas vitales
 
 Que nos permitan multiplicar nuestra fuerza vital para lograr nuestros deseos.
 
